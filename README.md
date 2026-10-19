@@ -1,2 +1,0 @@
-# 20_10_LOP11A2_BATBAT
-CHÚC  CÔ VÀ CÁC BẠN NỮ  20/10 VUI VẺ
